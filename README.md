@@ -1,2 +1,2 @@
 # stoicinvestor
-Trading easy for everybody
+OM
